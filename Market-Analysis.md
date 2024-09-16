@@ -28,6 +28,32 @@ This analysis suggests that the laser engraving market in Jamaica is robust and 
 
 <https://bartleysallinwood.com.jm/>
 
+WB Trophies
+<https://wbtrophies.net/>
+
+
+Alpha Institute Gets Laser Engraver from Petrocaribe Fund
+By: Latonya Linton, November 23, 2018
+
+<https://jis.gov.jm/alpha-institute-gets-laser-engraver-from-petrocaribe-fund/>
+
+
+Here are three additional competitors in the laser engraving business environment in Jamaica:
+
+Etch To Etch Jamaica:
+
+Specializes in custom branding and laser engraving on various products like drinkware, personal accessories, and kitchenware. They offer customization options on items like Yeti tumblers and wooden keyrings.
+Website: Etch To Etch Jamaica
+Mekah Prints:
+
+Offers laser engraving services on a range of products, including drinkware, bamboo items, officeware, and leatherette gifts. Their advanced laser technology allows for vector cutting and engraving on materials like wood, metal, and acrylic.
+Website: Mekah Prints
+EM Kay Sports:
+
+Provides custom engraving services along with a range of other products like sports trophies and promotional items. They have a focus on quality products and customer service, using computerized laser engraving and sublimation techniques.
+Website: EM Kay Sports
+These businesses highlight the diverse range of laser engraving services available in Jamaica, offering customization on various materials and products.
+
 
 [Link to Market Analysis AI](https://chatgpt.com/c/66e78b09-55d8-8006-aaf6-c56e285a6fc0)
 
