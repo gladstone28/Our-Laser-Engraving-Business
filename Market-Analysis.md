@@ -29,6 +29,6 @@ This analysis suggests that the laser engraving market in Jamaica is robust and 
 <https://bartleysallinwood.com.jm/>
 
 
-
+[Link to Market Analysis AI](https://chatgpt.com/c/66e78b09-55d8-8006-aaf6-c56e285a6fc0)
 
 
