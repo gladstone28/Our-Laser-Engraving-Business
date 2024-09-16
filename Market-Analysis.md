@@ -40,18 +40,21 @@ By: Latonya Linton, November 23, 2018
 
 Here are three additional competitors in the laser engraving business environment in Jamaica:
 
-Etch To Etch Jamaica:
+1. Etch To Etch Jamaica:
 
-Specializes in custom branding and laser engraving on various products like drinkware, personal accessories, and kitchenware. They offer customization options on items like Yeti tumblers and wooden keyrings.
-Website: Etch To Etch Jamaica
-Mekah Prints:
+- Specializes in custom branding and laser engraving on various products like drinkware, personal accessories, and kitchenware. They offer customization options on items like Yeti tumblers and wooden keyrings.
+- Website: Etch To Etch Jamaica
 
-Offers laser engraving services on a range of products, including drinkware, bamboo items, officeware, and leatherette gifts. Their advanced laser technology allows for vector cutting and engraving on materials like wood, metal, and acrylic.
-Website: Mekah Prints
-EM Kay Sports:
+2. Mekah Prints:
 
-Provides custom engraving services along with a range of other products like sports trophies and promotional items. They have a focus on quality products and customer service, using computerized laser engraving and sublimation techniques.
-Website: EM Kay Sports
+- Offers laser engraving services on a range of products, including drinkware, bamboo items, officeware, and leatherette gifts. Their advanced laser technology allows for vector cutting and engraving on materials like wood, metal, and acrylic.
+- Website: Mekah Prints
+
+3. EM Kay Sports:
+
+- Provides custom engraving services along with a range of other products like sports trophies and promotional items. They have a focus on quality products and customer service, using computerized laser engraving and sublimation techniques.
+- Website: EM Kay Sports
+
 These businesses highlight the diverse range of laser engraving services available in Jamaica, offering customization on various materials and products.
 
 
